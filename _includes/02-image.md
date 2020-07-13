@@ -1,1 +1,1 @@
-![Image of GTA](233.png)
+![Image of profile](67794928.png)
